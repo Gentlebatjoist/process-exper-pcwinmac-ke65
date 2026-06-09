@@ -1,4 +1,4 @@
-# 
+# أفضل Process Explorer أدوات لـ Mac OS | ذكي Process Explorer أدوات لـ PC Windows. مع معلومات النظام و دعم شاشات متعددة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
